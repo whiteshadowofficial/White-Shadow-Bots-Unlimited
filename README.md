@@ -15,3 +15,4 @@
 [![News](https://github-readme-stats.vercel.app/api/pin/?username=whiteshadowofficial&theme=highcontrast&repo=Jessi-whatsapp-bot-md2)](https://github.com/whiteshadowofficial/Jessi-whatsapp-bot-md2)
 
 
+Powered by Mr.White Shadow.
