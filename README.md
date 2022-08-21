@@ -23,7 +23,7 @@
 #### Join My Chat Group
 <br>
 
-  [![join](image/wlogo.svg.png)](https://chat.whatsapp.com/KlpSnFrspoaEu2kRrjx8v4)
+  [![join](https://github.com/whiteshadowofficial/whiteshadowofficial/image/wlogo.svg.png)](https://chat.whatsapp.com/KlpSnFrspoaEu2kRrjx8v4)
 
   <div align="center">
 
