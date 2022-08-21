@@ -18,7 +18,7 @@
 #### 𝗪𝗦 𝗠𝗢𝗗𝗦 𝗢𝗙𝗖 ☯︎ϟ
 
 
-> <a href="https://youtube.com/channel/UCKW8EUxAo6A7RKhc35H54wg"><img src="https://telegra.ph/file/34b606df946a576bf1140.jpg/badge/Subscribe-My YT Channel-ff0000?style=for-the-badge&logo=youtube&logoColor=ff000000&link=https://telegra.ph/file/34b606df946a576bf1140.jpg" /><br>
+ <a href="https://youtube.com/channel/UCKW8EUxAo6A7RKhc35H54wg"><img src="https://telegra.ph/file/34b606df946a576bf1140.jpg/badge/Subscribe-My YT Channel-ff0000?style=for-the-badge&logo=youtube&logoColor=ff000000&link=https://telegra.ph/file/34b606df946a576bf1140.jpg" /><br>
 
 #### Join My Chat Group
 <br>
